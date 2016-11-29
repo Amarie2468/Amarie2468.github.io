@@ -1,2 +1,2 @@
-# MarieMethod.github.io
+# Amarie2468.github.io
 personal page
